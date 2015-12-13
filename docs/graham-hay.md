@@ -1,0 +1,4 @@
+- Graham Hay
+- New Zealand
+- Laksa
+- Amateur Radio
